@@ -1,1 +1,1 @@
-Crpto currency website
+Crypto currency website
